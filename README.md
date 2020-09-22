@@ -36,4 +36,4 @@ def get_100_socore():
 ---
 
 :stuck_out_tongue_winking_eye:
-:pushpin:
+:open_mouth::open_mouth::open_mouth::open_mouth::open_mouth::open_mouth::open_mouth::open_mouth::open_mouth::open_mouth::open_mouth:
